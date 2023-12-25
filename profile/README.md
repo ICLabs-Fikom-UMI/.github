@@ -8,4 +8,4 @@
 
 ---
 
-© 2023 [CA(PEK)] | [iclabs.fikom.umi.ac.id] | Dikembangkan dengan lubuk hati paling dalam.
+© 2023 [CA(PEK)] | [iclabs.fikom.umi.ac.id] | Dikembangkan dari lubuk hati paling dalam.
